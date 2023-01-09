@@ -1,1 +1,1 @@
-ok lah klo bgitu
+ok lah klo bgitu ya
